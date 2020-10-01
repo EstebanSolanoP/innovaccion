@@ -1,4 +1,4 @@
-# innovaccion
+# INNOVACCIÓN 2.0
 
 Innovacción virtual 
 
